@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @psychobandit00
-- 👀 I’m interested in Fortnite 
+- 👀 I’m interested in Fortnite being a nig
 - 🌱 I’m currently learning arse
 - 💞️ I’m looking to collaborate on snarf
 - 📫 How to reach me yaesd
